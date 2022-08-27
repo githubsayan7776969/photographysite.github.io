@@ -1,1 +1,0 @@
-# photographyportfolio.github.io
